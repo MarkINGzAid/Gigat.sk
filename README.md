@@ -1,0 +1,2 @@
+# Gigat.sk
+Gigat.sk
